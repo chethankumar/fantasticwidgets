@@ -18,4 +18,5 @@ These images never leave your device.
 
 We do not take any other information and no information is transmitted to our servers.
 This Privacy Policy is subject to change periodically. By using Fantastic Widgets you accept the terms and conditions of this Privacy Policy.
+
 Last Updated September 28, 2020
