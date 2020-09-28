@@ -1,4 +1,4 @@
-# fantasticwidgets - Privacy Policy
+# Fantastic Widgets - Privacy Policy
 
 ## Thank you for showing interest in Fantastic Widgets. 
 
